@@ -5,7 +5,9 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/krutikbundela?tab=repositories](https://github.com/krutikbundela?tab=repositories)
 
-- 📫 How to reach me **krutikbundela2001@gmail.com**
+- 📫 How to contact me **krutikbundela2001@gmail.com**
+
+- 📫 How to contact me **https://linktr.ee/krutikbundela?utm_source=linktree_profile_share&ltsid=fd6c77b7-7f79-40a2-8c96-1c16e0001bd6**
 
 # 💫 About Me:
 I'm Krutik Bundela<br>Exploring The World Of WEB 2.0<br>Was Great experience at https://www.youtube.com/@krutikbundela4884<br>Last Year BCA<br>
