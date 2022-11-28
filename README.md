@@ -8,7 +8,7 @@
 - 📫 How to reach me **krutikbundela2001@gmail.com**
 
 # 💫 About Me:
-I'm Krutik Bundela<br>Exploring The World Of WEB 2.0<br>Learning MERN STACK at https://www.codingshuttle.com/<br>Last Year BCA<br>
+I'm Krutik Bundela<br>Exploring The World Of WEB 2.0<br>Was Great experience at https://www.youtube.com/@krutikbundela4884<br>Last Year BCA<br>
 
 
 ## 🌐 Socials:
